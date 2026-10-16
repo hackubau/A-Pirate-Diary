@@ -19,6 +19,7 @@
 - Meditazione mia con uccellino in testa in toscana
 - Sogni meditativi
 - Meditazione fusione albero
+- Capanna Sudatoria
 - Salti mortali, ballavo, mi rialzo, CIAO OTELLO! e lui ha salutato come si saluta un pazzo, ma questa volta il pazzo risultavo io!
 - Salti mortali con signore che dico: faccio il salto per te!
   - e lui pensava fossi pazzo quindi ye
@@ -47,6 +48,8 @@
 - La scrivania di marco
 
 ## Indice Pirata
+- sopravvivenza con Michele appesi ad una scogliera
+- imparato salti mortali da solo sulla sabbia
 - Tornio? 
   - aprile 2020
 - [Lampatronco ed il forziere pirata](Lampatronco%20ed%20il%20forziere%20pirata)Lampatronco
@@ -60,10 +63,10 @@
 - I cubetti infiniti della parete muschio 2 anni dopo
 - Sassi rubati in croazia
   - agosto 2017
-- Choki e kiwi persi
+- Choki e kiwi persi e ritrovati volo libero
 - Choki e kiwi campeggio nudista con backflip nudo
-
-
+- Calopsitta Antonella salvata attirandola da noi e ritrovato padroni
+- corso sopravvivenza 
 
 ## Le avventure di choki e kiwi
 - 3 uccelli in croazia - 2025
